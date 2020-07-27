@@ -1,1 +1,1 @@
-Manifest your dreams.
+Manifest your dreams. Don't stop!
